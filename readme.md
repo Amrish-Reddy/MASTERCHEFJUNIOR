@@ -1,0 +1,2 @@
+Some claim that fries originated in Belgium, where villagers along the River Meuse traditionally ate fried fish. ... It's said that this dish was discovered by American soldiers in Belgium during World War I and, since the dominant language of southern Belgium is French, they dubbed the tasty potatoes “French” fries
+If dominant language is Amrish, they should dubbed the tasty "Amrish Fries"
